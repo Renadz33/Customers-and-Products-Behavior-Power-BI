@@ -10,6 +10,7 @@
 ✅ Geographical Sales Distribution to pinpoint high-revenue areas and enhance delivery services.  
 
 How Can This Help Businesses?🚀
+
 🔹 Improve marketing strategies and customer targeting.  
 🔹 Enhance customer experience and reduce return rates.  
 🔹 Optimize inventory and sales planning.  
